@@ -44,9 +44,9 @@ Mais cor, riqueza de malte e corpo do que uma German Pils, com um final mais che
 
 IBU: 30 - 45
 SRM: 3.5 - 6
-OG: 1.044 - 1.060
-FG: 1.013 - 1.017
-ABV: 4.2% - 5.8%
+OG: 1,044 - 1,060
+FG: 1,013 - 1,017
+ABV: 4,2% - 5,8%
 
 ### Exemplos comerciais
 
