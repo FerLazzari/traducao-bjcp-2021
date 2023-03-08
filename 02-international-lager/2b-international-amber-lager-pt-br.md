@@ -6,7 +6,7 @@ Uma lager âmbar maltada, suave e fácil de beber, com um saboroso caráter que 
 
 ### Aparência
 
-Cor de âmbar dourado a cobre avermelhado. Limpidez brilhante. Espuma de branca a quase branca, que pode não perdurar.
+Cor de âmbar dourado a cobre avermelhado. Limpidez brilhante. Espuma de branca a esbranquiçada, que pode não perdurar.
 
 ### Aroma
 
@@ -40,9 +40,9 @@ Sabor de malte menos desenvolvido do que uma Vienna Lager, frequentemente com sa
 
 IBU: 8 - 25
 SRM: 6 - 14
-OG: 1.042 - 1.055
-FG: 1.008 - 1.014
-ABV: 4.5% - 6%
+OG: 1,042 - 1,055
+FG: 1,008 - 1,014
+ABV: 4,5% - 6%
 
 ### Exemplos comerciais
 
