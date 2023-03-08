@@ -40,9 +40,9 @@ Este estilo pode ser semelhante a uma Vienna Lager, mas com mais forte caráter 
 
 IBU: 20 - 35
 SRM: 10 - 16
-OG: 1.044 - 1.060
-FG: 1.013 - 1.017
-ABV: 4.4% - 5.8%
+OG: 1,044 - 1,060
+FG: 1,013 - 1,017
+ABV: 4,4% - 5,8%
 
 ### Exemplos comerciais
 
