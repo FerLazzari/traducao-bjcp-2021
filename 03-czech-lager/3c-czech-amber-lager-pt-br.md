@@ -2,19 +2,19 @@
 
 ### Impressão Geral
 
-Uma lager tcheca âmbar, maltada, com um caráter de lúpulo que pode variar de baixo a bastante significante. Os sabores de malte também podem variar, levando a diferentes interpretações e equilíbrios, variando de mais secos, como pão e leve biscoito a mais doces e algo como caramelo.
+Uma lager tcheca âmbar, maltada, com um caráter de lúpulo que pode variar de baixo a muito significativo. Os sabores de malte também podem variar, levando a diferentes interpretações e equilíbrios, variando de mais secos, como pão e leve biscoito a mais doces e algo como caramelo.
 
 ### Aparência
 
-Cor âmbar profundo a cobre. Claridade limpa a brilhante. Colarinho de alta formação, quase branco e persistente.
+Cor âmbar profundo a cobre. Claridade límpida a brilhante. Colarinho de alta formação, esbranquiçado e persistente.
 
 ### Aroma
 
-Rico aroma de malte de intensidade moderada que pode ser como pão e dominantes produtos de Maillard ou leve dulçor como caramelo. Caráter de lúpulo condimentado, floral ou herbal pode ser de moderado a nenhum. Caráter limpo de lager, embora baixos ésteres frutados (frutas de caroço ou bagas) podem estar presentes. Diacetil baixo é opcional.
+Aroma rico de malte de intensidade moderada que pode ser como pão e produtos de Maillard dominantes ou leve adocicado de caramelo. Caráter de lúpulo condimentado, floral ou herbal pode ser de moderado a nenhum. Caráter limpo de lager, embora baixos ésteres frutados (drupas ou bagas/berries) podem estar presentes. Diacetil baixo é opcional.
 
 ### Sabor
 
-O sabor de malte complexo é dominante (médio a médio-alto), embora sua natureza possa variar de seco e dominantes produtos de Maillard a caramelo e quase doce. Alguns exemplares tem o caráter doce de malte a biscoito cracker. Baixo a moderado sabor condimentado de lúpulo. Amargor de lúpulo proeminente, mas limpo, que proporciona um final equilibrado. Ésteres sutis como ameixa e baga são opcionais. Baixo diacetil opcional. Sem sabores de malte torrado. O final pode variar de seco e lupulado a relativamente doce.
+O sabor de malte complexo é dominante (médio a médio-alto), embora sua natureza possa variar de seco e com predominância de produtos de Maillard a caramelo e quase doce. Alguns exemplares tem caráter de malte muito adocicado a biscoito Graham. Sabor condimentado de lúpulo de baixo a moderado. Amargor de lúpulo proeminente, mas limpo, que proporciona um final equilibrado. Ésteres sutis como ameixa e baga/berries são opcionais. Baixo diacetil opcional. Sem sabores de malte torrado. O final pode variar de seco e lupulado a relativamente doce.
 
 ### Sensação na Boca
 
@@ -22,7 +22,7 @@ Corpo médio a médio-alto. Suave e arredondada, frequentemente com uma cremosid
 
 ### Comentários
 
-O nome tcheco deste estilo é polotmavé pivo, que se traduz como cerveja meio escura. Este estilo é a combinação dos estilos tchecos polotmavý ležák (11–12.9 °P) e polotmavé speciální pivo (13–14.9 °P). Algumas versões podem ser uma mistura de cervejas claras e escuras.
+O nome tcheco deste estilo é polotmavé pivo, que traduz para cerveja meio escura. Este estilo é a combinação dos estilos tchecos polotmavý ležák (11–12,9 °P) e polotmavé speciální pivo (13–14,9 °P). Algumas versões podem ser uma mistura de cervejas claras e escuras.
 
 ### História
 
@@ -34,15 +34,15 @@ Malte pilsner e caramelo, mas o malte Vienna e Munich também podem ser utilizad
 
 ### Comparação de estilo
 
-Este estilo pode ser semelhante a uma Vienna Lager, mas com mais forte caráter de adição tardia de lúpulo tcheco, ou se aproxima a uma Britsh Bitter, mas com um caráter significativamente mais rico e intenso de caramelo. As versões das grandes cervejarias são geralmente semelhantes à Czech Premium Pale Lager com sabores leves de malte mais escuro e menos lúpulo, enquanto as cervejarias menores frequentemente criam versões com um considerável caráter de lúpulo, complexidade de malte ou dulçor residual.
+Este estilo pode ser semelhante a uma Vienna Lager, mas com caráter mais forte de adição tardia de lúpulo tcheco, ou se aproxima a uma Britsh Bitter, mas com um caráter significativamente mais rico e intenso de caramelo. As versões das grandes cervejarias são geralmente semelhantes à Czech Premium Pale Lager com sabores leves de malte mais escuro e menos lúpulo, enquanto as cervejarias menores frequentemente criam versões com caráter considerável de lúpulo, complexidade de malte ou dulçor residual.
 
 ### Estatísticas
 
 IBU: 20 - 35
 SRM: 10 - 16
-OG: 1.044 - 1.060
-FG: 1.013 - 1.017
-ABV: 4.4% - 5.8%
+OG: 1,044 - 1,060
+FG: 1,013 - 1,017
+ABV: 4,4% - 5,8%
 
 ### Exemplos comerciais
 
