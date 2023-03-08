@@ -44,9 +44,9 @@ Caso deseje, o participante pode especificar variações regionais (Lager Mexica
 
 IBU: 18 - 25
 SRM: 2 - 6
-OG: 1.042 - 1.050
-FG: 1.008 - 1.012
-ABV: 4.5% - 6%
+OG: 1,042 - 1,050
+FG: 1,008 - 1,012
+ABV: 4,5% - 6%
 
 ### Exemplos comerciais
 
