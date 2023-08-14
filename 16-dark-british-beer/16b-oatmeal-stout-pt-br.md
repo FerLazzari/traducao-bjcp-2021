@@ -6,19 +6,19 @@ Uma stout escura, torrada e encorpada com doçura suficiente para sustentar a ba
 
 ### Aparência
 
-Cor marrom a preta. Colarinho espesso, cremoso e persistente de cor castanho claro a marrom. Límpida, se não opaco.
+Cor de marrom a preta. Colarinho espesso, cremoso e persistente de cor de castanho claro a marrom. Límpida, se não opaca.
 
 ### Aroma
 
-Caráter leve de grãos, torrado, semelhante ao café, com um leve dulçor de malte que pode dar uma impressão de café com creme. Frutado baixo a médio-alto. Médio-baixo aroma de lúpulo terroso ou floral opcional. Um leve aroma de nozes e grãos vindos da aveia é opcional. Diacetil médio-baixo opcional, mas normalmente ausente.
+Caráter leve de grãos, torrado, semelhante ao café, com um leve dulçor de malte que pode dar uma impressão de café com creme. Frutado de baixo a médio-alto. Aroma de lúpulo terroso ou floral opcional médio-baixo. Um leve aroma de nozes e grãos vindos da aveia é opcional. Diacetil médio-baixo opcional, mas normalmente ausente.
 
 ### Sabor
 
-Semelhante ao aroma, com um sabor suave de café torrado, chocolate ao leite ou café com creme, frutado baixo a moderadamente alto. A aveia pode adicionar um sabor de nozes tostadas, grãos ou terroso. Amargor médio. Final meio doce a meio seco, o que afeta a percepção de equilíbrio. Retrogosto maltado, torrado e de nozes. Sabor de lúpulo terroso ou floral médio-baixo opcional. Diacetil médio-baixo opcional, mas normalmente ausente.
+Semelhante ao aroma, com um sabor suave de café torrado, chocolate ao leite ou café com creme, frutado de baixo a moderadamente alto. A aveia pode adicionar um sabor de nozes tostadas, grãos ou terroso. Amargor médio. Final de meio doce a meio seco, o que afeta a percepção de equilíbrio. Retrogosto maltado, torrado e de nozes. Sabor de lúpulo terroso ou floral médio-baixo opcional. Diacetil médio-baixo opcional, mas normalmente ausente.
 
 ### Sensação na Boca
 
-Corpo médio-cheio a cheio, com um toque macio, sedoso, aveludado, às vezes quase oleosa da aveia. Cremosa. Carbonatação média a média-alta. Versões mais fortes podem aquecer levemente.
+Corpo de médio-cheio a cheio, com um toque macio, sedoso, aveludado, às vezes quase oleosa da aveia. Cremosa. Carbonatação de médio a médio-alta. Versões mais fortes podem aquecer levemente.
 
 ### Comentários
 
