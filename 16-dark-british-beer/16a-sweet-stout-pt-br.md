@@ -14,15 +14,15 @@ Aroma suave de grãos torrados, às vezes com notas de café ou chocolate. Muita
 
 ### Sabor
 
-Sabores escuros, torrados, café ou chocolate dominam o paladar. Ésteres frutados de baixo a moderado. Amargor moderado. O dulçor médio a alto oferece um contraponto ao caráter torrado e ao amargor, perdurando até o final. O equilíbrio entre grãos escuros ou maltes e dulçor pode variar, de bastante doce a moderadamente seco e um pouco torrado. Diacetil baixo opcional. Baixo sabor de lúpulo floral ou terroso opcional.
+Sabores escuros, torrados, café ou chocolate dominam o paladar. Ésteres frutados de baixo a moderado. Amargor moderado. O dulçor de médio a alto oferece um contraponto ao caráter torrado e ao amargor, perdurando até o final. O equilíbrio entre grãos escuros ou maltes e dulçor pode variar de bastante doce a moderadamente seco e um pouco torrado. Diacetil baixo opcional. Baixo sabor de lúpulo floral ou terroso opcional.
 
 ### Sensação na Boca
 
-Corpo médio-cheio a cheio e cremoso. Carbonatação baixa a moderada. O alto dulçor residual de açúcares não fermentados aumenta a sensação de boca cheia.
+Corpo de médio-cheio a cheio e cremoso. Carbonatação de baixa a moderada. O alto dulçor residual de açúcares não fermentados aumenta a sensação de boca cheia.
 
 ### Comentários
 
-A densidade é baixa na Grã-Bretanha (às vezes mais baixas do que as estatísticas abaixo), mais altas nos produtos exportados e nos EUA. Existem variações, no nível de dulçor residual, na intensidade do caráter torrado, e o equilíbrio entre estas duas variáveis é passível de interpretação.
+A densidade é baixa na Grã-Bretanha (às vezes mais baixas do que as estatísticas abaixo), mais altas nos produtos exportados e nos EUA. Existem variações, no nível de dulçor residual, na intensidade do caráter torrado e o equilíbrio entre estas duas variáveis é passível de interpretação.
 
 ### História
 
