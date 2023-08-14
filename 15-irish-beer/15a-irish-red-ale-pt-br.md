@@ -6,19 +6,19 @@ Uma cerveja fácil de beber, muitas vezes com sabores sutis. Ligeiramente maltad
 
 ### Aparência
 
-Cor âmbar médio a cobre avermelhado médio. Límpida. Colarinho baixo, quase branco a bronzeado, persistência média.
+Cor de âmbar médio a cobre avermelhado médio. Límpida. Colarinho baixo de quase branco a bronzeado, persistência média.
 
 ### Aroma
 
-Aroma de malte baixo a moderado, pode ter um perfil de grãos neutros ou um leve caramelo, tostado ou toffee. Caráter amanteigado muito leve opcional. Aroma baixo de lúpulo terroso ou floral opcional. Bastante limpa.
+Aroma de malte de baixo a moderado, pode ter um perfil de grãos neutros ou um leve caramelo, tostado ou toffee. Caráter amanteigado muito leve opcional. Aroma baixo de lúpulo terroso ou floral opcional. Bastante limpa.
 
 ### Sabor
 
-Moderado a muito pouco sabor e dulçor de malte caramelo, raramente com um leve tostado amanteigado ou toffee. O paladar é frequentemente bastante neutro e como grãos, ou pode assumir uma nota levemente tostada ou de biscoito, terminando com um leve sabor de grãos torrados, o que confere uma secura característica ao final. Um leve sabor de lúpulo terroso ou floral é opcional. Amargor médio a médio-baixo. Final meio seco a seco. Limpa e suave. Ésteres baixos opcionais. O equilíbrio tende a ser ligeiramente para o malte, embora o uso leve de grãos torrados possa aumentar ligeiramente a percepção de amargor.
+Moderado a muito pouco sabor e dulçor de malte caramelo, raramente com um leve tostado amanteigado ou toffee. O paladar é frequentemente bastante neutro e como grãos, ou pode assumir uma nota levemente tostada ou de biscoito, terminando com um leve sabor de grãos torrados, o que confere uma secura característica ao final. Um leve sabor de lúpulo terroso ou floral é opcional. Amargor de médio a médio-baixo. Final de meio seco a seco. Limpa e suave. Ésteres baixos opcionais. O equilíbrio tende a ser ligeiramente para o malte, embora o uso leve de grãos torrados possa aumentar ligeiramente a percepção de amargor.
 
 ### Sensação na Boca
 
-Corpo médio-leve a médio, embora exemplos contendo baixos níveis de diacetil possam ter uma sensação na boca levemente escorregadia (não necessária). Carbonatação moderada. Suave.
+Corpo de médio-leve a médio, embora exemplos contendo baixos níveis de diacetil possam ter uma sensação na boca levemente escorregadia (não necessária). Carbonatação moderada. Suave.
 
 ### Comentários
 
