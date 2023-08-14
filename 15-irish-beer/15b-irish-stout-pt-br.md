@@ -6,7 +6,7 @@ Uma cerveja preta com um sabor torrado pronunciado, muitas vezes semelhante ao c
 
 ### Aparência
 
-Cor muito preta a marrom profundo com reflexos granada. De acordo com a Guinness, “a cerveja Guinness pode parecer preta, mas na verdade é um tom muito escuro de rubi”. Opaca. Um colarinho espesso, cremoso, durador, de cor bronzeada a marrom é característico quando servida com nitro, mas não espere um colarinho firme e cremoso em uma cerveja engarrafada.
+Cor de muito preta a marrom profundo com reflexos granada. De acordo com a Guinness, “a cerveja Guinness pode parecer preta, mas na verdade é um tom muito escuro de rubi”. Opaca. Um colarinho espesso, cremoso, durador, de cor castanho claro a marrom é característico quando servida com nitro, mas não espere um colarinho firme e cremoso em uma cerveja engarrafada.
 
 ### Aroma
 
@@ -18,7 +18,7 @@ Sabor moderado de grãos torrados ou malte com um amargor médio a alto. O final
 
 ### Sensação na Boca
 
-Corpo médio-leve a médio-cheio, com um caráter um tanto cremoso – especialmente quando servido com nitro. Carbonatação baixa a moderada. Pelo alto amargor do lúpulo e proporção significativa de grãos escuros presentes, esta cerveja é notavelmente suave. Pode ter uma leve adstringência dos grãos torrados, embora a aspereza seja indesejável.
+Corpo de médio-leve a médio-cheio, com um caráter um tanto cremoso – especialmente quando servido com nitro. Carbonatação de baixa a moderada. Pelo alto amargor do lúpulo e proporção significativa de grãos escuros presentes, esta cerveja é notavelmente suave. Pode ter uma leve adstringência dos grãos torrados, embora a aspereza seja indesejável.
 
 ### Comentários
 
