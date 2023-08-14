@@ -6,19 +6,19 @@ Uma stout muito escura, rica, moderadamente forte, bastante seca, com sabores to
 
 ### Aparência
 
-Cor marrom muito profundo a preto. Limpidez geralmente obscurecida pela cor escura. Límpida, se não for opaca. Colarinho volumoso, castanho a marrom, com boa retenção.
+Cor de marrom muito profundo a preto. Limpidez geralmente obscurecida pela cor escura. Límpida, se não for opaca. Colarinho volumoso, de castanho a marrom, com boa retenção.
 
 ### Aroma
 
-Torra moderada a alta, como café, chocolate amargo ou grãos levemente queimados. Frutado baixo a médio. Pode ter um aroma doce, melaço, alcaçuz, frutas secas ou vínico. Versões mais fortes podem ter um aroma sutil e limpo de álcool. Aroma baixo de lúpulo terroso, herbal ou floral opcional. Diacetil baixo opcional.
+Torra de moderada a alta, como café, chocolate amargo ou grãos levemente queimados. Frutado baixo a médio. Pode ter um aroma doce, melaço, alcaçuz, frutas secas ou vínico. Versões mais fortes podem ter um aroma sutil e limpo de álcool. Aroma baixo de lúpulo terroso, herbal ou floral opcional. Diacetil baixo opcional.
 
 ### Sabor
 
-Torra moderada a alta, como café, chocolate amargo ou grãos levemente queimados, embora sem uma intensidade forte. Ésteres de baixo a médio. Amargor médio a alto. Final moderadamente seco. Sabor moderado de lúpulo terroso, herbal ou floral opcional. Diacetil médio-baixo opcional.
+Torra de moderada a alta, como café, chocolate amargo ou grãos levemente queimados, embora sem uma intensidade forte. Ésteres de baixo a médio. Amargor de médio a alto. Final moderadamente seco. Sabor moderado de lúpulo terroso, herbal ou floral opcional. Diacetil médio-baixo opcional.
 
 ### Sensação na Boca
 
-Corpo médio-cheio a cheio, muitas vezes com um caráter suave, às vezes cremoso. Pode ter um aquecimento alcoólico, mas não pode queimar. Carbonatação moderada a moderadamente alta.
+Corpo de médio-cheio a cheio, muitas vezes com um caráter suave, às vezes cremoso. Pode ter um aquecimento alcoólico, mas não pode queimar. Carbonatação de moderada a moderadamente alta.
 
 ### Comentários
 
