@@ -6,11 +6,11 @@ Uma cerveja maltada de força moderada com sabores leves de caramelo, tosta, tof
 
 ### Aparência
 
-Cobre claro a marrom. Límpida. Colarinho cremoso, quase branco, baixo a moderado.
+De cobre claro a marrom. Límpida. Colarinho cremoso, quase branco de baixo a moderado.
 
 ### Aroma
 
-Malte médio com notas de caramelo e toffee, e qualidades levemente tostadas e açucaradas que podem remeter a migalhas de pão torrado, biscoito champagne, biscoitos ingleses, bolachas ou caramelo. Leve frutado de maçã/pera e leve aroma de lúpulo inglês (terroso, floral, laranja-cítrico, picante, etc.) são permitidos.
+Malte médio com notas de caramelo e toffee e qualidades levemente tostadas e adocicadas que podem remeter a migalhas de pão torrado, biscoito champagne, biscoitos ingleses, bolachas ou caramelo. Leve frutado de maçã/pera e leve aroma de lúpulo inglês (terroso, floral, laranja-cítrico, picante, etc.) são permitidos.
 
 ### Sabor
 
@@ -18,11 +18,11 @@ Malte médio como pão tostado, com nuances de caramelo e toffee, terminando com
 
 ### Sensação na Boca
 
-Corpo médio. Carbonatação média-baixa a média. Talvez seja moderadamente cremosa.
+Corpo médio. Carbonatação de média-baixa a média. POde ser moderadamente cremosa.
 
 ### Comentários
 
-Veja a introdução da categoria para comentários detalhados. Pode não parecer tão amarga quanto as especificações indicam devido à maior gravidade final e dulçor residual. Não interprete errado a leve secura torrada como defumado; o defumado não está presente nessas cervejas. As versões americanizadas geralmente são mais fortes (semelhante ao tratamento americano das Irish Red Ales).
+Veja a introdução da categoria para comentários detalhados. Pode não parecer tão amarga quanto as especificações indicam devido à maior densidade final e dulçor residual. Não interprete errado a leve secura torrada como defumado; o defumado não está presente nessas cervejas. As versões americanizadas geralmente são mais fortes (semelhante ao tratamento americano das Irish Red Ales).
 
 ### História
 
