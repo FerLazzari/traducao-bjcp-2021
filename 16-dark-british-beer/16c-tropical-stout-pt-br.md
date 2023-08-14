@@ -6,19 +6,19 @@ Uma stout muito escura, doce, frutada, moderadamente forte, com sabores suaves e
 
 ### Aparência
 
-Cor marrom muito profundo a preto. Limpidez geralmente obscurecida pela cor escura. Límpida, se não for opaca. Colarinho volumoso castanho a marrom, com boa retenção.
+Cor de marrom muito profundo a preto. Limpidez geralmente obscurecida pela cor escura. Límpida, se não for opaca. Colarinho volumoso de castanho a marrom, com boa retenção.
 
 ### Aroma
 
-Dulçor de moderada a alta intensidade é proeminente. Aroma moderado a alto de café, chocolate ou torrado, mas não queimado. Frutado médio a alto. Pode ter aroma de melaço, alcaçuz, açúcar queimado, frutas secas ou vínico. Versões mais fortes podem ter um aroma sutil e limpo de álcool. Baixo aroma de lúpulo opcional. Diacetil baixo opcional.
+Dulçor de intensidade moderada a alta é proeminente. Aroma de moderado a alto de café, chocolate ou torrado, mas não queimado. Frutado de médio a alto. Pode ter aroma de melaço, alcaçuz, açúcar queimado, frutas secas ou vínico. Versões mais fortes podem ter um aroma sutil e limpo de álcool. Baixo aroma de lúpulo opcional. Diacetil baixo opcional.
 
 ### Sabor
 
-Bastante doce com sabores suaves de grãos escuros e amargor contido, médio-baixo a médio. Sabor suave e torrado, muitas vezes como café ou chocolate, embora moderado no equilíbrio pelo final doce. Sem sabor de malte queimado ou aspereza no final. Ésteres frutados moderados a altos. Pode ter uma qualidade doce, de rum escuro, melaço ou açúcar queimado. Baixo sabor de lúpulo opcional. Diacetil médio-baixo opcional.
+Bastante doce com sabores suaves de grãos escuros e amargor contido, médio-baixo a médio. Sabor suave e torrado, muitas vezes como café ou chocolate, embora moderado no equilíbrio pelo final doce. Sem sabor de malte queimado ou aspereza no final. Ésteres frutados de moderados a altos. Pode ter uma qualidade doce, de rum escuro, melaço ou açúcar queimado. Baixo sabor de lúpulo opcional. Diacetil médio-baixo opcional.
 
 ### Sensação na Boca
 
-Corpo médio-cheio a cheio, muitas vezes com um caráter suave e cremoso. Pode ter um aquecimento alcoólico, mas não pode queimar. Carbonatação moderada a moderadamente alta.
+Corpo de médio-cheio a cheio, muitas vezes com um caráter suave e cremoso. Pode ter um aquecimento alcoólico, mas não pode queimar. Carbonatação de moderada a moderadamente alta.
 
 ### Comentários
 
