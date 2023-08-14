@@ -10,7 +10,7 @@ Cobre profundo a marrom escuro. Límpida. Colarinho cremoso, quase branco, baixo
 
 ### Aroma
 
-Malte baixo a médio com notas de caramelo e toffee, e qualidades levemente tostadas e açucaradas que podem remeter a migalhas de pão torrado, biscoito champagne, biscoitos ingleses, bolachas ou caramelo. Leve frutado de maçã/pera e leve aroma de lúpulo inglês (terroso, floral, laranja-cítrico, picante, etc.) são permitidos.
+Malte de baixo a médio com notas de caramelo e toffe, e qualidades levemente tostadas e açucaradas que podem remeter a migalhas de pão torrado, biscoito champagne, biscoitos ingleses, bolachas ou caramelo. Leve frutado de maçã/pera e leve aroma de lúpulo inglês (terroso, floral, laranja-cítrico, picante, etc.) são permitidos.
 
 ### Sabor
 
@@ -18,7 +18,7 @@ Malte médio como pão tostado, com nuances de caramelo e toffee, terminando com
 
 ### Sensação na Boca
 
-Corpo médio-baixo a médio. Carbonatação baixa a moderada. Talvez seja moderadamente cremosa.
+Corpo de médio-baixo a médio. Carbonatação baixa a moderada. Pode ser moderadamente cremosa.
 
 ### Comentários
 
@@ -30,7 +30,7 @@ Veja a introdução da categoria. Os nomes cervejas Shilling eram usados para ce
 
 ### Ingredientes
 
-Na sua forma mais simples, malte pale ale, mas também pode usar maltes com mais cor, açúcares, milho, trigo, malte crystal, corantes e uma variedade de outros grãos. Levedura limpa. Água leve. Sem malte defumado com turfa.
+Na sua forma mais simples, malte pale ale, mas também pode usar maltes com mais cor, açúcares, milho, trigo, malte crystal, corantes e uma variedade de outros cereais. Levedura limpa. Água leve. Sem malte defumado com turfa.
 
 ### Comparação de estilos
 
