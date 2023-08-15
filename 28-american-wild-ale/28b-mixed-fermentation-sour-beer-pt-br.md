@@ -10,7 +10,7 @@ Varia com o estilo base. Limpidez pode variar; turbidez baixa não é necessaria
 
 ### Aroma
 
-Varia com o estilo base. A contribuição de micróbios que são *saccharomyces* deve ser perceptível a forte e frequentemente contribui com uma nota selvagem, ácida e *funky*. Os melhores exemplares apresentam uma amplitude de aromáticos ao invés de uma característica única e dominante. O aroma deve ser convidativo, não agressivo e desagradável.
+Varia com o estilo base. A contribuição de micróbios que não são *Saccharomyces* deve ser perceptível a forte e frequentemente contribui com uma nota selvagem, ácida e *funky*. Os melhores exemplares apresentam uma amplitude aromática ao invés de uma característica única e dominante. O aroma deve ser convidativo, não agressivo e desagradável.
 
 ### Sabor
 
@@ -30,7 +30,7 @@ Interpretações modernas artesanais ou experimentações inspiradas em Belgian 
 
 ### Ingredientes
 
-Virtualmente qualquer estilo de cerveja. Frequentemente fermentada por uma combinação de *lactobacillus*, *pediococcus*, *saccharomyces* e *brettanomyces*. Pode também ser uma mistura de estilos. Madeiras ou envelhecimento em barricas é bastante comum, mas não obrigatório; caso presente não deve ser um sabor primário ou dominante.
+Virtualmente qualquer estilo de cerveja. Frequentemente fermentada por uma combinação de *Lactobacillus*, *Pediococcus*, *Saccharomyces* e *Brettanomyces*. Pode também ser uma mistura de estilos. Madeiras ou envelhecimento em barricas é bastante comum, mas não obrigatório; caso presente não deve ser um sabor primário ou dominante.
 
 ### Comparação de Estilos
 
