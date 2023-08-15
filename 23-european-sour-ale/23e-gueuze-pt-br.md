@@ -10,7 +10,7 @@ Cor dourada, com excelente limpidez e uma espuma branca, espessa, densa como mou
 
 ### Aroma
 
-Moderadamente ácida com caráter *funky* complexo, mas equilibrada, acentuada por notas frutadas. O caráter *funky* pode ser de moderado a forte e pode ser descrito como celeiro, couro, terra, cabra, feno, cavalo ou manta de cavalo. O sabor frutado é de leve a moderado, com frutas cítricas, casca de frutas cítricas, frutas de pomar ou ruibarbo. O malte é apenas para suporte e pode ter um leve caráter de pão, grãos, mel ou trigo, quando perceptível. Não deve apresentar defeitos entéricos, defumados, semelhantes a charutos ou de queijo. Sem lúpulo. Leve carvalho é aceitável. A complexidade do aroma é mais valorizada do que a intensidade, mas uma apresentação ácida equilibrada é desejável.
+Moderadamente ácida com caráter *funky* complexo, mas equilibrada, acentuada por notas frutadas. O caráter *funky* pode ser de moderado a forte e pode ser descrito como celeiro, couro, terra, cabra, feno, cavalo ou manta de cavalo. O sabor frutado é de leve a moderado, com frutas cítricas, casca de frutas cítricas, frutas de caroço ou ruibarbo. O malte é apenas para suporte e pode ter um leve caráter de pão, grãos, mel ou trigo, quando perceptível. Não deve apresentar defeitos entéricos, defumados, semelhantes a charutos ou de queijo. Sem lúpulo. Leve carvalho é aceitável. A complexidade do aroma é mais valorizada do que a intensidade, mas uma apresentação ácida equilibrada é desejável.
 
 ### Sabor
 
@@ -18,7 +18,7 @@ Moderadamente ácida com caráter *funky* complexo, mas equilibrada, acentuada p
 
 ### Sensação na Boca
 
-Corpo baixo a médio-baixo; não deve ser aguada. Tem uma acidez de baixa a alta, trazendo a capacidade de franzir o rosto sem ser acentuadamente adstringente. Algumas versões têm um caráter de aquecimento muito leve. Altamente carbonatada.
+Corpo de baixo a médio-baixo; não deve ser aguada. Tem uma acidez de baixa a alta, trazendo a capacidade de franzir o rosto sem ser acentuadamente adstringente. Algumas versões têm um caráter de aquecimento muito leve. Altamente carbonatada.
 
 ### Comentários
 
