@@ -2,7 +2,7 @@
 
 ### Impressão Geral
 
-Uma cerveja azeda, clara e refrescante com um azedume lático limpo. Suave sabor de malte claro de apoio para o azedume, como limão, e com moderados ésteres frutados
+Uma cerveja azeda, clara e refrescante com acidez lática limpa. Suave sabor de malte claro de apoio para a acidez, como limão, e com ésteres frutados moderados.
 
 ### Aparência
 
@@ -14,15 +14,15 @@ Um caráter de acidez acentuada é dominante (de moderadamente alto a alto). Pod
 
 ### Sabor
 
-Azedume lático limpo dominante e pode ser bastante forte. Algum sabor complementar de pão, biscoito ou como cereais é geralmente notável. Amargor de lúpulo é indetectável. Nunca avinagrado ou com uma acidez picante. Caráter de fruta branca pode ser moderado, incluindo cítrico como limão ou maçã ácida que é geralmente notável. Final é quase seco a seco. O equilíbrio é dominado pelo azedume, porém alguns sabores de malte e ésteres frutados devem estar presentes. Sem sabor de lúpulo. Limpa.
+A acidez lática limpa é dominante e pode ser bastante intensa. Algum sabor complementar de pão, biscoito ou como cereais é geralmente perceptível. Amargor de lúpulo é indetectável. Nunca avinagrado ou com uma acidez picante. Caráter de fruta branca pode ser moderado, incluindo cítrico como limão ou maçã ácida que é geralmente perceptível. Final é de quase seco a seco. O equilíbrio é dominado pela acidez, porém alguns sabores de malte e ésteres frutados devem estar presentes. Sem sabor de lúpulo. Limpa.
 
 ### Sensação na Boca
 
-Corpo leve. Carbonatação moderada a alta. Nunca quente, embora exemplos de densidade inicial maior podem ter um caráter de aquecimento alcoólico. Acidez bem definida.
+Corpo leve. Carbonatação de moderada a alta. Nunca quente, embora exemplos de densidade inicial maior podem ter um caráter de aquecimento alcoólico. Acidez bem definida.
 
 ### Comentários
 
-Uma versão mais forte de cervejas como Berliner Weisse com uma combinação de grãos menos restrita, e sem Brett. Esse estilo de cerveja é tipicamente utilizado como base para cervejas modernas que são altamente saborizadas com frutas, especiarias, açúcares, etc., essas devem ser inscritas em 28C Wild Specialty Beer.
+Uma versão mais forte de cervejas como Berliner Weisse com uma combinação de cereias menos restrita, e sem Brett. Esse estilo de cerveja é tipicamente utilizado como base para cervejas modernas que são altamente saborizadas com frutas, especiarias, açúcares, etc., essas devem ser inscritas em 28C Wild Specialty Beer.
 
 ### História
 
@@ -30,7 +30,7 @@ O cientista cervejeiro alemão, Otto Francke, desenvolveu o que se tornou conhec
 
 ### Ingredientes
 
-A maior parte, ou toda combinação de grãos, é de maltes Pale, Pilsen ou maltes de trigo em qualquer combinação. Maltes levemente tostados podem ser utilizados para maior profundidade maltada. Maltes como Carapils podem ser utilizados para o corpo. Açúcar claro pode ser utilizado para aumentar a densidade inicial sem aumentar o corpo. Sem lactose ou maltodextrina. Pode ser produzida por meio de kettle souring, culturas de cofermentação (levedura ou bactéria produtora de ácido lático), ou utilizando levedura especial para produção de ácido lático. Sem Brett.
+A maior parte, ou toda combinação de maltes, é de maltes Pale, Pilsen ou maltes de trigo em qualquer combinação. Maltes levemente tostados podem ser utilizados para maior profundidade maltada. Maltes como Carapils podem ser utilizados para o corpo. Açúcar claro pode ser utilizado para aumentar a densidade inicial sem aumentar o corpo. Sem lactose ou maltodextrina. Pode ser produzida por meio de kettle souring, culturas de cofermentação (levedura ou bactéria produtora de ácido lático), ou utilizando levedura especial para produção de ácido lático. Sem Brett.
 
 ### Comparação de estilos
 
