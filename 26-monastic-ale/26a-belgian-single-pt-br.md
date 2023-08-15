@@ -10,11 +10,11 @@ Cor de amarelo claro a dourado médio. Geralmente tem boa limpidez, com um colar
 
 ### Aroma
 
-Característica de levedura belga de intensidade média-baixa a média-alta, exibindo um caráter frutado e condimentado em conjunto com um perfil de intensidade média-baixo a médio de lúpulo condimentado ou floral, ocasionalmente realçadas por toques leves de especiarias herbais ou cítricas. Em segundo plano, o malte é de baixo a médio-baixo, com notas de pão, biscoito, cereais ou mel suave. O frutado pode varias bastante (maçã, pera, toranja, limão, laranja, pêssego, damasco). Fenólicos são tipicamente como pimenta preta ou cravo. Tutti-frutti é inapropriado.
+Característica de levedura belga de intensidade de média-baixa a média-alta, exibindo um caráter frutado e condimentado em conjunto com um perfil de intensidade de média-baixo a médio de lúpulo condimentado ou floral, ocasionalmente realçadas por toques leves de especiarias herbais ou cítricas. Em segundo plano, o malte é de baixo a médio-baixo, com notas de pão, biscoito, cereais ou mel suave. O frutado pode varias bastante (maçã, pera, toranja, limão, laranja, pêssego, damasco). Fenólicos são tipicamente como pimenta preta ou cravo. Tutti-frutti é inapropriado.
 
 ### Sabor
 
-No início, o sabor maltado é leve com caráter de biscoito de mel, pão ou biscoito tipo água e sal. Possui sabor de grãos suave e um final lupulado, amargo e seco e bem definido. Na boca, sabor moderado de lúpulo com característica condimentada ou floral. Ésteres moderados semelhantes aos encontrados no aroma. Fenólicos condimentados de leves a moderados como os encontrados no aroma. Amargor de médio a alto, acentuado pela secura. O caráter de levedura e o de lúpulo permanecem no retrogosto.
+No início, o sabor maltado é leve com caráter de biscoito de mel, pão ou biscoito tipo água e sal. Possui sabor de cereais suave e um final lupulado, amargo e seco e bem definido. Na boca, sabor moderado de lúpulo com característica condimentada ou floral. Ésteres moderados semelhantes aos encontrados no aroma. Fenólicos condimentados de leves a moderados como os encontrados no aroma. Amargor de médio a alto, acentuado pela secura. O caráter de levedura e o de lúpulo permanecem no retrogosto.
 
 ### Sensação na Boca
 
