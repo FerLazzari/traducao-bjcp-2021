@@ -6,15 +6,15 @@ Uma ale belga complexa de cor cobre avermelhada, moderadamente forte, maltada, c
 
 ### Aparência
 
-Cor de âmbar escuro a cobre, com uma atraente profundidade reflexo avermelhado. Geralmente límpida. Colarinho cremoso com longa duração, de cor quase branco, espesso e denso.
+Cor de âmbar escuro a cobre, com uma atraente profundidade com reflexo avermelhado. Geralmente límpida. Colarinho cremoso com longa duração, de cor quase branco, espesso e denso.
 
 ### Aroma
 
-Aroma maltado rico que varia de moderado a moderadamente forte com notas de chocolate, açúcar caramelizado ou tostado. Nunca torrado ou queimado. Ésteres frutados moderados, muitas vezes remetendo a frutas secas ou escuras, especialmente passas e ameixas, por vezes frutas de caroço e banana. Fenólico de baixo a moderado, com caráter apimentado, condimentado. Tipicamente os lúpulos são ausentes, mas quando presentes, têm caráter condimentado, herbal ou floral de baixa intensidade. No equilíbrio, o malte é o mais forte, com ésteres e condimentados adicionando complexidade. Perfume alcoólico de baixa intensidade e suave é opcional.
+Aroma maltado rico que varia de moderado a moderadamente forte com notas de chocolate, açúcar caramelizado ou tostado. Nunca torrado ou queimado. Ésteres frutados moderados, muitas vezes remetendo a frutas secas ou escuras, especialmente passas e ameixas, por vezes frutas de caroço e banana. Fenólico de baixo a moderado, com caráter apimentado, condimentado. Normalmente os lúpulos são ausentes, mas quando presentes, têm caráter condimentado, herbal ou floral de baixa intensidade. No equilíbrio, o malte é o mais forte, com ésteres e condimentados adicionando complexidade. Perfume alcoólico de baixa intensidade e suave é opcional.
 
 ### Sabor
 
-Perfil similar ao aroma (são aplicados os mesmos descritores e intensidades) para malte, ésteres, fenólicos, álcool e lúpulos. Amargor de médio-baixo a médio, mas o malte sempre será mais proeminente no equilíbrio. Os ésteres e fenóis adicionam complexidade e interesse para o malte, ao passo que o álcool tipicamente não é percebido. Maltado rico, por vezes com sabor adocicado, com final moderadamente seco e sabor maltado acentuado no retrogosto pelos ésteres e fenóis provenientes da levedura.
+Perfil similar ao aroma (são aplicados os mesmos descritores e intensidades) para malte, ésteres, fenólicos, álcool e lúpulos. Amargor de médio-baixo a médio, mas o malte sempre será mais proeminente no equilíbrio. Os ésteres e fenóis adicionam complexidade e interesse para o malte, ao passo que o álcool geralmente não é percebido. Maltado rico, por vezes com sabor adocicado, com final moderadamente seco e sabor maltado acentuado no retrogosto pelos ésteres e fenóis provenientes da levedura.
 
 ### Sensação na Boca
 
