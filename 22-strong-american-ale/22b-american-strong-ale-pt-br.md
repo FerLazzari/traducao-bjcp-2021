@@ -14,7 +14,7 @@ Aroma de lúpulo de médio a alto, tipicamente apresentando características mod
 
 ### Sabor
 
-Malte médio a alto, com qualidades de caramelo, toffee ou frutas escuras. A complexidade do malte pode ter o suporte adicional de sabores tostados, como pão ou ricos. Chocolate leve ou torrado é permitido, mas não deve ser queimado ou acentuado. Amargor de médio alto a alto. Sabor de lúpulo de moderado a alto, mesmos descritores do aroma. Ésteres de baixos a moderados. Pode ter um sabor de álcool perceptível, mas não deve ser acentuado. Dulçor de malte de médio a alto no paladar, terminando de um pouco seco a um pouco adocicado. Não deve ser xaroposa, doce ou enjoativa. Retrogosto de amargo a amargo adocicado, com lúpulo, malte e álcool perceptíveis.
+Malte de médio a alto, com qualidades de caramelo, toffee ou frutas escuras. A complexidade do malte pode ter o suporte adicional de sabores tostados, como pão ou ricos. Chocolate leve ou torrado é permitido, mas não deve ser queimado ou acentuado. Amargor de médio alto a alto. Sabor de lúpulo de moderado a alto, mesmos descritores do aroma. Ésteres de baixos a moderados. Pode ter um sabor de álcool perceptível, mas não deve ser acentuado. Dulçor de malte de médio a alto no paladar, terminando de um pouco seco a um pouco adocicado. Não deve ser xaroposa, doce ou enjoativa. Retrogosto de amargo a amargo adocicado, com lúpulo, malte e álcool perceptíveis.
 
 ### Sensação na Boca
 
