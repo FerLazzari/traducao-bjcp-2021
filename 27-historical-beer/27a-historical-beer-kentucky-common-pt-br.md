@@ -2,7 +2,7 @@
 
 ### Impressão Geral
 
-Uma cerveja escura limpa, seca, refrescante, ligeiramente maltada e com alta carbonatação. De sabor suave, com leve tostado e sabores de caramelo, servida bem fresca como uma cerveja leve, de salão.
+Uma cerveja escura limpa, seca, refrescante, ligeiramente maltada e com alta carbonatação. De sabor suave, com leve tostado e sabores de caramelo, servida bem fresca como uma cerveja leve, de mesa.
 
 ### Aparência
 
@@ -10,11 +10,11 @@ Cor de âmbar alaranjado a marrom. Normalmente límpida, mas pode ter alguma tur
 
 ### Aroma
 
-Malte de baixo a médio como de grãos, semelhante a milho ou dulçor de malte, com um leve tostado, grão tipo biscoito, pão ou caramelo. Aroma de lúpulo de médio a moderadamente baixo, geralmente de caráter floral ou picante. Perfil limpo de fermentação, com possível leve éster que remete a fruto de baga. Baixos níveis de DMS são opcionais. Sem acidez. O equilíbrio tende ao malte.
+Malte de baixo a médio como de cereais, semelhante a milho ou dulçor de malte, com um leve tostado, grão tipo biscoito, pão ou caramelo. Aroma de lúpulo de médio a moderadamente baixo, geralmente de caráter floral ou picante. Perfil limpo de fermentação, com possível leve éster que remete a fruto de baga. Baixos níveis de DMS são opcionais. Sem acidez. O equilíbrio tende ao malte.
 
 ### Sabor
 
-Moderado dulçor de malte como de grãos com notas de baixo a médio baixo caramelo, *toffee*, pão ou biscoito. Geralmente com sabores leves no palato, típico de cerveja com adjuntos; baixo dulçor como de grãos, semelhante a milho é comum. De médio a baixo sabor de lúpulo floral ou condimentado. Amargor de médio a baixo, sem retrogosto áspero ou agressivo. Pode apresentar leve frutado. O equilíbrio no final é em direção ao malte, possivelmente com um leve sabor de sulfato mineral. O final é bastante seco. Sem acidez.
+Moderado dulçor de malte como de cereais com notas de baixo a médio baixo caramelo, *toffee*, pão ou biscoito. Geralmente com sabores leves no palato, típico de cerveja com adjuntos; baixo dulçor como de cereais, semelhante a milho é comum. De médio a baixo sabor de lúpulo floral ou condimentado. Amargor de médio a baixo, sem retrogosto áspero ou agressivo. Pode apresentar leve frutado. O equilíbrio no final é em direção ao malte, possivelmente com um leve sabor de sulfato mineral. O final é bastante seco. Sem acidez.
 
 ### Sensação na Boca
 
