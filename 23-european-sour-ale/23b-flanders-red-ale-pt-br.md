@@ -7,7 +7,7 @@ Uma ale do estilo belga ácida e frutada, marrom-avermelhada envelhecida em carv
 
 ### Aparência
 
-De cor vermelho profundo, bordô, a marrom-avermelhado. Boa limpidez. Colarinho, na cor, de branco a castanho muito claro. Média a boa retenção de espuma.
+Cor de vermelho profundo, bordô, a marrom-avermelhado. Boa limpidez. Colarinho de branco a castanho muito claro. Retenção de espuma de média a boa.
 
 ### Aroma
 
