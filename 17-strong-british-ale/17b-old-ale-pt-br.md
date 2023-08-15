@@ -10,7 +10,7 @@ Cor de âmbar profundo a marrom muito escuro avermelhado, mas a maioria é basta
 
 ### Aroma
 
-Adocicado de malte com ésteres frutados, muitas vezes com uma mistura complexa de frutas secas, vínico, caramelo, melaço, *toffee*, melaço claro (1) ou outros aromas de maltes especiais. Algumas notas oxidadas de álcool e de nozes são aceitáveis, semelhantes às encontradas em vinhos Xerez, Porto ou Madeira. Aroma de lúpulo geralmente não está presente.
+Adocicado de malte com ésteres frutados, muitas vezes com uma mistura complexa de frutas secas, vínico, caramelo, melaço, *toffee*, melado ou outros aromas de maltes especiais. Algumas notas oxidadas de álcool e de nozes são aceitáveis, semelhantes às encontradas em vinhos Xerez, Porto ou Madeira. Aroma de lúpulo geralmente não está presente.
 
 ### Sabor
 
