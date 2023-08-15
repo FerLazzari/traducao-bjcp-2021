@@ -19,11 +19,11 @@ Combina o perfil de sabor de uma Gueuze (aplica-se a mesma descrição) com cont
 
 ### Sensação na Boca
 
-Corpo baixo a médio-baixo; não deve ser aguada. Tem uma acidez de baixa a alta intensidade, trazendo a capacidade de franzir o rosto sem ser acentuadamente adstringente. Algumas versões têm um leve caráter de aquecimento. A carbonatação pode variar de efervescente a quase sem gás.
+Corpo de baixo a médio-baixo; não deve ser aguada. Tem uma acidez de baixa a alta intensidade, trazendo a capacidade de franzir o rosto sem ser acentuadamente adstringente. Algumas versões têm um leve caráter de aquecimento. A carbonatação pode variar de efervescente a quase sem gás.
 
 ### Comentários
 
-Produzida como Gueuze, com a fruta comumente adicionada no meio do envelhecimento, para que as leveduras e as bactérias possam fermentar todos os açúcares da fruta; ou adicionando frutas a uma Lambic, que é menos comum. Às vezes, a variedade de frutas pode ser difícil de identificar, pois as frutas fermentadas e envelhecidas costumam ser percebidas de maneira diferente das frutas frescas, mais reconhecíveis. A fruta pode trazer acidez e taninos, além de sabor e aroma; entender o caráter fermentado da fruta adicionada ajuda a julgar o estilo.
+Produzida como Gueuze, com a fruta comumente adicionada no meio do envelhecimento, para que as leveduras e as bactérias possam fermentar todos os açúcares da fruta; ou adicionando frutas a uma Lambic, que é menos comum. Às vezes, a variedade de frutas pode ser difícil de identificar, pois as frutas fermentadas e envelhecidas costumam ser percebidas de maneira diferente das frutas frescas, mas reconhecíveis. A fruta pode trazer acidez e taninos, além de sabor e aroma; entender o caráter fermentado da fruta adicionada ajuda a julgar o estilo.
 
 ### História
 
