@@ -10,7 +10,7 @@ Cor variando de dourado médio a âmbar avermelhado claro. Límpida. Leve turbid
 
 ### Aroma
 
-Proeminente a intenso aroma de lúpulo, muitas vezes com um caráter de frutas de caroço, de frutas tropicais, de frutas cítricas, de resina, de pinho, de frutas vermelhas ou de melão. Baixo aroma apimentado de malte de centeio em conjunto, em segundo plano, com um perfil maltado limpo de grãos. Perfil de fermentação limpo. Ésteres leves são opcionais. Aroma leve de álcool é opcional.
+De proeminente a intenso aroma de lúpulo, muitas vezes com um caráter de frutas de caroço, de frutas tropicais, de frutas cítricas, de resina, de pinho, de frutas vermelhas ou de melão. Baixo aroma apimentado de malte de centeio em conjunto, em segundo plano, com um perfil maltado limpo de grãos. Perfil de fermentação limpo. Ésteres leves são opcionais. Aroma leve de álcool é opcional.
 
 ### Sabor
 
