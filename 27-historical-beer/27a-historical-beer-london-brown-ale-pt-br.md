@@ -14,11 +14,11 @@ Aroma moderado de dulçor de malte, muitas vezes com um rico caráter de caramel
 
 ### Sabor
 
-Profundo sabor doce de malte tipo caramelo ou *toffee* no paladar, perdurando até o final, frequentemente com notas de biscoito e café. Alguns ésteres de frutas escuras podem estar presentes; perfil de fermentação relativamente limpo para uma cerveja inglesa. Baixo amargor. Baixo sabor de lúpulo terroso ou floral é opcional, mas é raro. Sabor de moderadamente baixo de malte torrado ou amargor de malte escuro é opcional. Final de moderadamente doce com retrogosto suave e maltado. Pode ter um sabor doce açucarado.
+Profundo sabor doce de malte tipo caramelo ou *toffee* no paladar, perdurando até o final, frequentemente com notas de biscoito e café. Alguns ésteres de frutas escuras podem estar presentes; perfil de fermentação relativamente limpo para uma cerveja inglesa. Baixo amargor. Baixo sabor de lúpulo terroso ou floral é opcional, mas é raro. Sabor moderadamente baixo de malte torrado ou amargor de malte escuro é opcional. Final de moderadamente doce com retrogosto suave e maltado. Pode ter um sabor doce açucarado.
 
 ### Sensação na Boca
 
-Corpo médio, mas a doçura residual pode dar uma impressão mais encorpada. Carbonatação de média baixa a média. Bastante cremosa e de textura suave, particularmente pela sua densidade.
+Corpo médio, mas o dulçor residual pode dar uma impressão mais encorpada. Carbonatação de média baixa a média. Bastante cremosa e de textura suave, particularmente pela sua densidade.
 
 ### Comentários
 
