@@ -6,7 +6,7 @@ Uma adaptação americana histórica da English Porter por imigrantes alemães u
 
 ### Aparência
 
-Cor de marrom médio a escuro, embora alguns exemplares possam ser quase pretos, com reflexos rubi ou de cor mogno. Relativamente clara. Espuma de cor castanha, de baixa a média formação, persistente.
+Cor de marrom médio a escuro, embora alguns exemplares possam ser quase pretos, com reflexos rubi ou de cor mogno. Relativamente translúcida. Espuma de cor castanha, de baixa a média formação, persistente.
 
 ### Aroma
 
@@ -14,7 +14,7 @@ Aroma de malte como grãos, com baixos níveis de chocolate, caramelo, biscoito,
 
 ### Sabor
 
-Sabor moderado de malte que remete a de grãos e de pão, com baixos níveis de chocolate, malte queimado, açúcar queimado, caramelo, biscoito, alcaçuz, melaço ou tosta. Sabor de milho ou DMS é aceitável em níveis baixos a moderados. Amargor de médio baixo a moderado. Baixo sabor de lúpulo floral, condimentado ou terroso é opcional. O equilíbrio é tipicamente nivelado entre o malte e o lúpulo, com um final moderadamente seco. Perfil de fermentação limpo, entretanto, ésteres leves são permitidos.
+Sabor moderado de malte que remete a de grãos e de pão, com baixos níveis de chocolate, malte queimado, açúcar queimado, caramelo, biscoito, alcaçuz, melaço ou tosta. Sabor de milho ou DMS é aceitável em níveis baixos a moderados. Amargor de médio baixo a moderado. Baixo sabor de lúpulo floral, condimentado ou terroso é opcional. O equilíbrio é geralmente nivelado entre o malte e o lúpulo, com um final moderadamente seco. Perfil de fermentação limpo, entretanto, ésteres leves são permitidos.
 
 ### Sensação na Boca
 
