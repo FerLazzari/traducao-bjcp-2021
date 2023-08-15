@@ -2,7 +2,7 @@
 
 ### Impressão Geral
 
-Uma cerveja frequentemente mais seca e frutada do que o estilo base sugere. Notas frutadas ou *funky* variam de baixas a altas, dependendo da idade da cerveja e cepas de *brettanomyces* utilizadas. Pode apresentar leve acidez que não seja láctica.
+Uma cerveja frequentemente mais seca e frutada do que o estilo base sugere. Notas frutadas ou *funky* variam de baixas a altas, dependendo da idade da cerveja e cepas de *Brettanomyces* utilizadas. Pode apresentar leve acidez que não seja láctica.
 
 ### Aparência
 
@@ -10,11 +10,11 @@ Varia com o estilo base. Limpidez variável e depende do estilo base e ingredien
 
 ### Aroma
 
-Varia com o estilo base. Brett Beers jovens apresentam notas frutadas (por exemplo, frutas tropicais, frutas de caroço ou frutas cítricas), no entanto a intensidade varia de acordo com as cepas de *brettanomyces* utilizadas. Brett Beers mais velhas apresentam leve *funky* conforme passa o tempo (por exemplo, celeiro, palha úmida, leve terroso e notas defumadas), no entanto essa característica não deve dominar.
+Varia com o estilo base. Brett Beers jovens apresentam notas frutadas (por exemplo, frutas tropicais, frutas de caroço ou frutas cítricas), no entanto a intensidade varia de acordo com as cepas de *Brettanomyces* utilizadas. Brett Beers mais velhas apresentam leve *funky* conforme passa o tempo (por exemplo, celeiro, palha úmida, leve terroso e notas defumadas), no entanto essa característica não deve dominar.
 
 ### Sabor
 
-Varia com o estilo base. O caráter de *brettanomyces* varia de mínimo a agressivo. Pode ser bastante frutado (por exemplo, frutas tropicais, bagas, frutas de caroço ou frutas cítricas) ou ter algum defumado, terroso ou notas de celeiro. Não deve ter um *funky* desagradável como Band-aid, fétido, removedor de esmalte, queijo etc. Sempre frutado quando a cerveja é jovem e ganhando mais *funky* com o envelhecimento. Pode não ser láctica. Sabores de malte são frequentemente menos pronunciados do que no estilo base, deixando a cerveja frequentemente seca e com final bem definido devido a alta atenuação da *brettanomyces*.
+Varia com o estilo base. O caráter de *Brettanomyces* varia de mínimo a agressivo. Pode ser bastante frutado (por exemplo, frutas tropicais, bagas, frutas de caroço ou frutas cítricas) ou ter algum defumado, terroso ou notas de celeiro. Não deve ter um *funky* desagradável como Band-aid, fétido, removedor de esmalte, queijo etc. Sempre frutado quando a cerveja é jovem e ganhando mais *funky* com o envelhecimento. Pode não ser láctica. Sabores de malte são frequentemente menos pronunciados do que no estilo base, deixando a cerveja frequentemente seca e com final bem definido devido a alta atenuação da *Brettanomyces*.
 
 ### Sensação na Boca
 
@@ -23,23 +23,23 @@ Varia com o estilo base. Geralmente tem um corpo baixo, mais leve do que o esper
 
 ### Comentários
 
-O estilo base descreve a maior parte das características destas cervejas, mas a adição de *brettanomyces* garante um produto mais seco, mais leve e frequentemente mais frutado e com *funky*. Versões jovens são mais vividas e frutadas, enquanto as mais velhas possuem *funk* mais complexo e podem perder mais do caráter do estilo base. O caráter de *brettanomyces* deve sempre combinar com o estilo base; essas cervejas nunca devem ser uma 'bomba de Brett'. Embora a *brettanomyces* possa produzir baixos níveis de ácidos orgânicos, não é um método primário de acidificação de cerveja.
+O estilo base descreve a maior parte das características destas cervejas, mas a adição de *Brettanomyces* garante um produto mais seco, mais leve e frequentemente mais frutado e com *funky*. Versões jovens são mais vividas e frutadas, enquanto as mais velhas possuem *funk* mais complexo e podem perder mais do caráter do estilo base. O caráter de *Brettanomyces* deve sempre combinar com o estilo base; essas cervejas nunca devem ser uma 'bomba de Brett'. Embora a *Brettanomyces* possa produzir baixos níveis de ácidos orgânicos, não é um método primário de acidificação de cerveja.
 
 ### História
 
-Interpretações modernas artesanais ou experimentações inspiradas em Belgian wild ales ou cervejas inglesas com *brettanomyces*. As ditas cervejas 100% Brett ganharam popularidade após o ano 2000, mas foi quando se imaginava que a Saccharomyces Trois fosse uma cepa de *brettanomyces* (o que não é). Atualmente *brettanomyces* usada em conjunto com uma fermentação com *saccharomyces* é uma prática padrão.
+Interpretações modernas artesanais ou experimentações inspiradas em Belgian wild ales ou cervejas inglesas com *Brettanomyces*. As ditas cervejas 100% Brett ganharam popularidade após o ano 2000, mas foi quando se imaginava que a *Saccharomyces trois* fosse uma cepa de *Brettanomyces* (o que não é). Atualmente *Brettanomyces* usada em conjunto com uma fermentação com *Saccharomyces* é uma prática padrão.
 
 ### Ingredientes
 
-Virtualmente qualquer estilo de cerveja (exceto os que já utilizam a co-fermentação *saccharomyces* ou *brettanomyces*), depois finalizada com uma ou mais cepas de *brettanomyces*. Uma alternativa é uma fermentação mista com *saccharomyces* e uma ou mais cepas de *brettanomyces*. Sem *lactobacillus*.
+Virtualmente qualquer estilo de cerveja (exceto os que já utilizam a co-fermentação *Saccharomyces* ou *Brettanomyces*), depois finalizada com uma ou mais cepas de *Brettanomyces*. Uma alternativa é uma fermentação mista com *Saccharomyces* e uma ou mais cepas de *brettanomyces*. Sem *Lactobacillus*.
 
 ### Comparação de Estilos
 
-Comparada com o mesmo estilo de cerveja sem *brettanomyces*, uma Brett Beer será mais seca, mais atenuada, mais frutada, com corpo mais leve e levemente com mais *funky* conforme envelhece. Menos acidez e profundidade do que Belgian wild ales.
+Comparada com o mesmo estilo de cerveja sem *Brettanomyces*, uma Brett Beer será mais seca, mais atenuada, mais frutada, com corpo mais leve e levemente com mais *funky* conforme envelhece. Menos acidez e profundidade do que Belgian wild ales.
 
 ### Instruções para inscrição
 
-O participante do concurso deve especificar um estilo base ou fornecer uma descrição dos ingredientes ou características desejadas. O participante deve especificar as cepas de *brettanomyces* utilizadas.
+O participante do concurso deve especificar um estilo base ou fornecer uma descrição dos ingredientes ou características desejadas. O participante deve especificar as cepas de *Brettanomyces* utilizadas.
 
 ### Estatísticas
 
