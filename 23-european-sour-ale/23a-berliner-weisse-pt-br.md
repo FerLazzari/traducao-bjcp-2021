@@ -22,7 +22,7 @@ Corpo leve, mas nunca ralo. Carbonatação muito alta. Sem sensação de álcool
 
 ### Comentários
 
-Qualquer aspecto de Bretta é contido e tipicamente expressado na forma de notas florais e frutadas, nunca *funky*. Versões envelhecidas podem denotar características de cidra, mel, feno ou suave flor silvestre e, por vezes, acidez elevada. Na Alemanha é classificada como uma *Schankbier*, ou seja, uma cerveja leve com densidade inicial na faixa de 7-8°P. Versões com adição de fruta ou especiarias devem ser inscritas como 29A Fruit Beer, como 30A Spice, Herb, or Vegetable Beer ou como 29B Fruit and Spice Beer.
+Qualquer aspecto de Bretta é contido e tipicamente expressado na forma de notas florais e frutadas, nunca *funky*. Versões envelhecidas podem denotar características de sidra, mel, feno ou suave flor silvestre e, por vezes, acidez elevada. Na Alemanha é classificada como uma *Schankbier*, ou seja, uma cerveja leve com densidade inicial na faixa de 7-8°P. Versões com adição de fruta ou especiarias devem ser inscritas como 29A Fruit Beer, como 30A Spice, Herb, or Vegetable Beer ou como 29B Fruit and Spice Beer.
 
 ### História
 
@@ -30,7 +30,7 @@ Uma especialidade regional de Berlim. Em 1809 era referida como "a Champagne do 
 
 ### Ingredientes
 
-Malte Pilsen. Usualmente malte de trigo, geralmente metade dos grãos, no mínimo. Uma co-fermentação simbiótica com levedura de alta fermentação e LAB (bactéria de ácido lático, da sigla em inglês) fornece a acidez acentuada, que pode ser melhorada pela mistura (durante a fermentação) de cervejas com tempos de envelhecimento distintos e pela maturação a frio. Decocção na mostura com *mash hopping* (adição de lúpulos durante a mosturação) é tradicional. Cientistas alemães da brassagem acreditam que Bretta é essencial para obter o perfil de sabor frutado-floral correto.
+Malte Pilsen. Geralmente malte de trigo, normalmente metade dos grãos, no mínimo. Uma co-fermentação simbiótica com levedura de alta fermentação e LAB (bactéria de ácido lático, da sigla em inglês) fornece a acidez acentuada, que pode ser melhorada pela mistura (durante a fermentação) de cervejas com tempos de envelhecimento distintos e pela maturação a frio. Decocção na mostura com *mash hopping* (adição de lúpulos durante a mosturação) é tradicional. Cientistas alemães da brassagem acreditam que Bretta é essencial para obter o perfil de sabor frutado-floral correto.
 
 ### Comparação de Estilo
 
