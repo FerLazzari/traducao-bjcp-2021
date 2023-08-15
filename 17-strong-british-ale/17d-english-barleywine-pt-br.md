@@ -6,7 +6,7 @@ Uma ale forte e ricamente maltada com uma agradável profundidade frutada ou lup
 
 ### Aparência
 
-Cor variando de âmbar dourado a marrom escuro, muitas vezes com reflexos rubi e profundidade de cor significativa. Não deve ser preta ou opaca. Colarinho de quase branco baixo a moderado. Pode ter baixa retenção de colarinho. Limpidez brilhante, principalmente quando envelhecida, embora as versões mais jovens possam ter um pouco de turbidez. O alto teor alcoólico e a viscosidade podem ser visíveis como lágrimas.
+Cor variando de âmbar dourado a marrom escuro, muitas vezes com reflexos rubi e profundidade de cor significativa. Não deve ser preta ou opaca. Colarinho quase branco de baixo a moderado. Pode ter baixa retenção de colarinho. Limpidez brilhante, principalmente quando envelhecida, embora as versões mais jovens possam ter um pouco de turbidez. O alto teor alcoólico e a viscosidade podem ser visíveis como lágrimas.
 
 ### Aroma
 
@@ -14,7 +14,7 @@ Muito rico, fortemente maltado, muitas vezes com aroma de caramelo nas versões 
 
 ### Sabor
 
-Dulçor de médio a altamente rico, maltada, muitas vezes complexa e com multicamadas, com sabores de pão, biscoito e malte caramelo (mais como *toffee* em versões mais claras) e com um frutado de médio a alto (geralmente com aspectos de frutas escuras ou secas). Quando envelhecidos, esses componentes frutados se destacam mais, e as versões mais escuras terão um nível mais alto do que as mais claras. O aroma, sabor e amargor do lúpulo podem variar muito. Lúpulos de leves a fortes, com um caráter inglês (floral, terroso, de chá ou de marmelada) são comuns. O amargor pode ser de leve a bastante forte, desaparecendo com o tempo, então o equilíbrio pode ser de maltado a um pouco amargo. Versões mais fortes terão um pouco de caráter alcoólico. O final e o retrogosto podem ser de moderadamente secos a moderadamente doces, muitas vezes dependendo da idade. As versões envelhecidas podem desenvolver sabores oxidados ou vínicos complexos em um nível perceptível, mas não proeminente. As versões claras geralmente parecem mais amargas, mais atenuadas e mais direcionadas para o lúpulo do que as versões mais escuras.
+Dulçor de médio a altamente rico, maltada, muitas vezes complexa e com multicamadas, com sabores de pão, biscoito e malte caramelo (mais como *toffee* em versões mais claras) e com um frutado de médio a alto (geralmente com aspectos de frutas escuras ou secas). Quando envelhecidos, esses componentes frutados se destacam mais e as versões mais escuras terão um nível mais alto do que as mais claras. O aroma, sabor e amargor do lúpulo podem variar muito. Lúpulo de leve a forte, com um caráter inglês (floral, terroso, de chá ou de marmelada) é comum. O amargor pode ser de leve a bastante forte, desaparecendo com o tempo, então o equilíbrio pode ser de maltado a um pouco amargo. Versões mais fortes terão um pouco de caráter alcoólico. O final e o retrogosto podem ser de moderadamente secos a moderadamente doces, muitas vezes dependendo da idade. As versões envelhecidas podem desenvolver sabores oxidados ou vínicos complexos em um nível perceptível, mas não proeminente. As versões claras geralmente parecem mais amargas, mais atenuadas e mais direcionadas para o lúpulo do que as versões mais escuras.
 
 ### Sensação na Boca
 
