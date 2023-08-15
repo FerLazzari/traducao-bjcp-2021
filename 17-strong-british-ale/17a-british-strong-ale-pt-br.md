@@ -18,11 +18,11 @@ Caráter de malte de médio a alto, muitas vezes rico com sabores de nozes, *tof
 
 ### Sensação na Boca
 
-Corpo de médio a cheio, mastigável. O aquecimento alcoólico álcool é muitas vezes evidente e sempre bem-vindo. Carbonatação de baixa a moderada. Textura suave.
+Corpo de médio a cheio, mastigável. O aquecimento alcoólico é muitas vezes evidente e sempre bem-vindo. Carbonatação de baixa a moderada. Textura suave.
 
 ### Comentários
 
-Mais uma categoria de inscrição do que um estilo; a força e o caráter dos exemplos podem variar muito. Encaixa-se no espaço de estilo entre cervejas de densidade normal e as Barley Wines. Pode incluir cervejas maltadas e lupuladas claras, cervejas inglesas mais alcoólicas de inverno, *dark milds* fortes, Burton Ales fracas e outras cervejas únicas na faixa de densidade geral que não se encaixam em outras categorias. Os juízes devem permitir uma variação significativa no caráter, desde que a cerveja esteja dentro da faixa de teor alcoólico e tenha um caráter 'britânico' interessante, provavelmente se encaixa no estilo.
+Mais uma categoria de inscrição do que um estilo; o teor alcoólico e o caráter dos exemplos podem variar muito. Encaixa-se no espaço de estilo entre cervejas de densidade normal e as Barley Wines. Pode incluir cervejas maltadas e lupuladas claras, cervejas inglesas mais alcoólicas de inverno, *dark milds* fortes, Burton Ales fracas e outras cervejas únicas na faixa de densidade geral que não se encaixam em outras categorias. Os juízes devem permitir uma variação significativa no caráter, desde que a cerveja esteja dentro da faixa de teor alcoólico e tenha um caráter 'britânico' interessante, provavelmente se encaixa no estilo.
 
 ### História
 
@@ -30,7 +30,7 @@ Uma coleção de estilos menores não relacionados, cada um com sua própria her
 
 ### Ingredientes
 
-Os grãos variam, muitas vezes baseados em maltes pale com caramelo e maltes especiais. Alguns exemplos mais escuros sugerem um uso leve de maltes escuros (por exemplo, chocolate, malte black). Adjuntos açucarados e amiláceos (por exemplo, milho, cevada em flocos, trigo) são comuns. Os lúpulos de finalização são tradicionalmente ingleses.
+Os malte varia, muitas vezes baseados em maltes pale com caramelo e maltes especiais. Alguns exemplos mais escuros sugerem um uso leve de maltes escuros (por exemplo, chocolate, malte black). Adjuntos açucarados e amiláceos (por exemplo, milho, cevada em flocos, trigo) são comuns. Os lúpulos de finalização são tradicionalmente ingleses.
 
 ### Comparação de estilos
 
