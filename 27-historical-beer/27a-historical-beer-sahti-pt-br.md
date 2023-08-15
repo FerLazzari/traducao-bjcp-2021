@@ -18,7 +18,7 @@ Bastante doce e muitas vezes com sabor de malte cru como mosto, como cereais com
 
 ### Sensação na Boca
 
-Espessa, viscosa e pesada com proteínas (sem fervura significa sem hot break). De quase sem carbonatação a moderadamente alta, similar a Cask Ales inglesas. Aquecimento pelo teor alcoólico e pelo frescor, porém muitas vezes mascarado pelo dulçor.
+Espessa, viscosa e pesada com proteínas (sem fervura significa sem hot break). De quase sem carbonatação a moderadamente alta, similar a Cask Ales inglesas. Aquecimento pelo teor alcoólico e por ser jovem, porém muitas vezes mascarado pelo dulçor.
 
 ### Comentários
 
