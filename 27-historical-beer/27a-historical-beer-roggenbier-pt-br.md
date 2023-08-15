@@ -6,7 +6,7 @@ Uma Dunkles Weissbier feita com centeio ao invés de trigo, mas com um corpo mai
 
 ### Aparência
 
-Cor de cobre alaranjado claro a um cobre amarronzado ou avermelhado escuro. Colarinho alto e cremoso de cor quase branca até bronzeado, bastante denso e persistente e, muitas vezes, espesso e firme.
+Cor de cobre alaranjado claro a um cobre amarronzado ou avermelhado escuro. Colarinho alto e cremoso de cor quase branca até castanho claro, bastante denso e persistente e, muitas vezes, espesso e firme.
 
 ### Aroma
 
@@ -22,7 +22,7 @@ Corpo de médio a médio alto. Carbontação alta. Cremosidade moderada.
 
 ### Comentários
 
-Centeio é um grão sem casca e dificulta a mostura, muitas vezes resultando em um mosto com textura pegajosa propensa a ficar pegajosa. O centeio tem sido caracterizado como o cereal com o sabor mais assertivo. Não é apropriado adicionar semente de cominho como alguns cervejeiros norte-americanos fazem; o caráter condimentado do centeio é tradicionalmente vindo apenas dos grãos.
+Centeio é um grão sem casca e dificulta a mostura, muitas vezes resultando em um mosto com textura pegajosa propensa a ficar gruneto. O centeio tem sido caracterizado como o cereal com o sabor mais assertivo. Não é apropriado adicionar semente de cominho como alguns cervejeiros norte-americanos fazem; o caráter condimentado do centeio é tradicionalmente vindo apenas dos grãos.
 
 ### História
 
